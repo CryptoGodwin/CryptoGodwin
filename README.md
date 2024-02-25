@@ -3,7 +3,7 @@
 - 🌱 I’m currently daily learning more about my trading journey 
 - 💞️ I’m looking to collaborate with big web3 and tech projects
 - 📫 How to reach me twitter @crypto_godwin
-- 😄 Pronouns: he?his
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: i'm young
 
 <!---
